@@ -18,7 +18,7 @@
 - **Salt and pepper** to taste
 - **1 teaspoon** dried oregano or Italian seasoning
 - **Fresh basil** for garnish (optional)
-
+- Tip: you can also use soy mince as a meat substitute
 
 ## Instructions
 
